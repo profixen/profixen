@@ -1,8 +1,8 @@
-ELENA MORGAN
+ELENA SMITH
 
 Senior Software Engineer | Software Development Specialist
 
-Tirana, Albania · elena.morgan@example.com ·
+Tirana, Albania · elena.smith.uk@gmail.com·
 
 PROFESSIONAL PROFILE
 
